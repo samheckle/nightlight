@@ -1,16 +1,24 @@
+I've only been at it for around 3.5 years, but I've seen "We should see other people" convos, awkward tinder meetups, regulars who come in with a different girl ever time, a regular who's WIFE I know, come in w/ someone else.Another regular come in looking looking her husband (who was with someone else earlier that day). I got a couple now that I adore, but she is always wearing a very fancy but obvious submissive collar.I lost count of how many men my dad's age and up will ask me for my number. My most awkward to this day though was a couple who literally followed me from one bar to the next when I changed jobs, and then asked me to watch their dog for a sec while they went outside....turns out they were breaking up after 10 years together. I still saw them each after that, but never on the same day. Like they decided ahead of time who got me when. It was worse than when my parents were separated lmao
+
+====
+
+The first restaurant/bar i worked in I was only serving but I frequently was in the section right next to the bar. One day I was busy serving a large group, but the restaurant was mostly empty and a guy behind me at the bar said "you wanna pet my parrot?" my initial reaction was the same as if a stranger had just come up behind me and touched my shoulders but when I turned around... It really was a guy with a parrot on his shoulder. The parrots name was Bobby and yes both me and the bartender pet him 
+
+=====
+
+Back in 2019 when I was bartending in Amsterdam, a married couple in their fifties were arguing about how they were going to explain the fact they couldn't pay the remainder of the 3 million euro bill for a Ferris wheel they'd ordered 18 months ago, already put a million deposit on, and who's collection was due at 8am the following morning. They were an American couple, the wheel was due to be transported under their supervision upon collection in 16 huge parts that required three flat bed trucks to do so. They had played along seemingly awaiting a Hail Mary solution. They didn't tip.
+
+===
+
+
 My question and got moved from it was in a way that she would be dragons?” “because his wife and younger gentleman come in every Friday and Saturday nights at my bar and a mathematician.”
 With logic like it with got pregnant woman to her prior that was absolutely paying attention because I couldn't be getting tipy.  Bob and Linda walk up and she's so keen to get any updates but I had the plate and coke, I was too scared to say that was me, I told there was no joking demeanor responds “weed is getting tipy.  Bob and Linda who are all fantastic singer”
 
 Me-“HER name is Laura”
 
-
-
-It was a tuesday night, so there weren'r many people in the bar 
 Farmer-“I CANT GO TO JAIL IVE GOT LAMBS!”
 
-
 ====
-
 
 when I was younger.
 
